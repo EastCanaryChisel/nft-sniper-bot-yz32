@@ -1,4 +1,4 @@
-# 
+# advanced nft sniper bot | profit-calculator + gas-optimization is the best nft sniper bot, featuring profit-calculator and gas-optimization. Fast, smart, and optimized for NFT
 
 
 
